@@ -1,1 +1,1 @@
-My first commit
+Is so funny shell and c
