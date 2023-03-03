@@ -1,1 +1,1 @@
-i verry goood to learn with Alx Commaunaité
+i verry goood to learn with Alx Commaunauté
